@@ -1,5 +1,6 @@
 ## Karma/Charlie!!
-*she/they*
+*she/they* // intj
+- i love sushi
 ## Ponytown Stuff
 ![](https://github.com/karmrsha/silly/blob/main/my%20wife.gif)
 <!--
