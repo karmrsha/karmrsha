@@ -1,5 +1,6 @@
 ## Karma/Charlie!!
 *she/they*
+![](https://github.com/karmrsha/silly/blob/main/my%20wife.gif)
 <!--
 **karmrsha/karmrsha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
