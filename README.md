@@ -1,7 +1,8 @@
 ## 💜 Karma/Charlie!!
 *she/they* // *intj*
 - i love sushi or just food in general
-- Drawing - Making pony skins on PT - Listening to music
+- Drawing - Making pony skins on PT - Listening to music - VCing
+> "You were never broken Viktor, there is beauty in imperfections. They made you who you are"
 ## Ponytown Stuff
 ![](https://github.com/karmrsha/silly/blob/main/my%20wife.gif)
 
@@ -11,7 +12,7 @@
 - i will most likely boop you if you ship jayvik. i fucking love jayvik, please boop me too if im in a viktor skin 🙏
 - dont interact if you're here to start drama/arguments or be a dickhead. im never in the mood to deal with someone that wants to actively cause issues 💜
 
-**If you find me in PT and want me to show you some skins I have listed below, I can :)**
+**If you find me in PT and want me to show you some skins I have listed below, I can :) just whisper me!**
 
 *bolded are ones im on most*
 
