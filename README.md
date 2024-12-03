@@ -19,7 +19,7 @@
 
 🔮 *Arcane/LoL*
 - **Arcane Savior Viktor**
-- Astral Viktor / matching with my friend Birdy (if you have an astral jayce i will immediately boop you and probably sit/cuddle with you)
+- Astral Viktor / m/w my friend Birdy (if you have an astral jayce i will immediately boop you and probably sit/cuddle with you)
 - Jayce (S2 Act 3 where he has that greenish black outfit)
 - Viktor (S2 Act 2)
 
