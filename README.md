@@ -6,6 +6,7 @@
 ## Ponytown Stuff
 ![](https://github.com/karmrsha/silly/blob/main/my%20wife.gif)
 
+- im always on the 18+ server just sitting, usually with a friend
 - i am c+h (cuddle + hide)!! Please feel free to cuddle or hide! Kissing is also good, i love kisses
 - i dont mind covering, so if you are doing it delibrately to get a reaction out of me, you arent getting one lol
 - im usually on Busy but you can interact with me :) preferably through whispers however because i am incredibly blind and most of the time might be looking at my other monitor/offtab
