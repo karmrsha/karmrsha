@@ -9,9 +9,28 @@
 - im usually on Busy but you can interact with me :) preferably through whispers however because i am incredibly blind and most of the time might be looking at my other monitor/offtab
 
 **If you find me in PT and want me to show you some skins I have listed below, I can :)**
+*bolded are ones im on most*
 
 🔮 *Arcane/LoL*
-- Arcane Savior Viktor
+- **Arcane Savior Viktor**
 - Astral Viktor / matching with my friend Birdy (if you have an astral jayce i will immediately boop you)
-- Jayce (specifically in S2 Act 3 where he has that greenish black outfit)
+- Jayce (S2 Act 3 where he has that greenish black outfit)
 - Viktor (S2 Act 2)
+
+🔴 *Valorant*
+- **Clove** (including a christmas edition Clove)
+- Vyse
+
+🦋 *JoJo's Bizarre Adventure*
+- Weather Report
+- Kakyoin
+- Josuke
+- Koichi (currently a bit of a WIP atm)
+
+❔ Other/Misc
+- Skipp (Ramshackle)
+- Shiver (Splatoon)
+- Sebastian (Pressure)
+
+...And more, but they are either very old/I dont associate with the fandoms theyre from anymore.
+
