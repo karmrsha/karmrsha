@@ -10,7 +10,7 @@
 - i am c+h (cuddle + hide)!! Please feel free to cuddle or hide! Kissing is also good, i love kisses
 - i dont mind covering, so if you are doing it delibrately to get a reaction out of me, you arent getting one lol
 - im usually on Busy but you can interact with me :) preferably through whispers however because i am incredibly blind and most of the time might be looking at my other monitor/offtab
-- i will most likely boop you if you ship jayvik. i fucking love jayvik, please boop me too if im in a viktor skin 🙏
+- i will most likely boop you/cuddle you if you ship jayvik. i fucking love jayvik, please boop me/cuddle me too if im in a viktor skin 🙏
 - dont interact if you're here to start drama/arguments or be a dickhead. im never in the mood to deal with someone that wants to actively cause issues 💜
 
 **If you find me in PT and want me to show you some skins I have listed below, I can :) just whisper me!**
