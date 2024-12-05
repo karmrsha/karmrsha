@@ -26,6 +26,7 @@
 🔴 *Valorant*
 - **Clove** (including a christmas edition Clove)
 - Vyse
+- KAY/O
 
 🦋 *JoJo's Bizarre Adventure*
 - Weather Report
