@@ -23,6 +23,7 @@
 - Jayce (S2 Act 3 where he has that greenish black outfit)
 - Viktor (S2 Act 2)
 - Prototype Viktor
+- Heartsteel Sett
 
 🔴 *Valorant*
 - **Clove** (including a christmas edition Clove)
